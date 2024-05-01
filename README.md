@@ -1,1 +1,1 @@
-# karunya
+# karunya student
